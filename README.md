@@ -67,8 +67,10 @@ Telegram: Okba Elkantara
 Email: techokba@gmail.com
 📞 Phone: +213-671.36.04.38
 
-[Screenshot_2025-01-21_17-52-02](https://github.com/user-attachments/assets/06054dc1-3edc-4238-89ed-eb569748d7cb)
-[Screenshot_2025-01-21_17-51-43](https://github.com/user-attachments/assets/cfdd5955-51c5-4b60-8c01-b7fcd5def0a2)
+
+![Screenshot_2025-01-21_17-52-02](https://github.com/user-attachments/assets/801b3228-3a29-4679-8e20-0ed1a1ed1d9a)
+![Screenshot_2025-01-21_17-51-43](https://github.com/user-attachments/assets/da7d21c3-7b39-434f-b6b0-91d31769b934)
+
 
 
 Made with ❤️ by Okba
