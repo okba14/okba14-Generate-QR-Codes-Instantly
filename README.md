@@ -65,8 +65,10 @@ If you have any questions, issues, or suggestions, feel free to reach out:
 WhatsApp: 2136.71.36.04.38
 Telegram: Okba Elkantara
 Email: techokba@gmail.com
-📞 Phone: +213-671.36.04.38![Screenshot_2025-01-21_17-52-02](https://github.com/user-attachments/assets/06054dc1-3edc-4238-89ed-eb569748d7cb)
-![Screenshot_2025-01-21_17-51-43](https://github.com/user-attachments/assets/cfdd5955-51c5-4b60-8c01-b7fcd5def0a2)
+📞 Phone: +213-671.36.04.38
+
+[Screenshot_2025-01-21_17-52-02](https://github.com/user-attachments/assets/06054dc1-3edc-4238-89ed-eb569748d7cb)
+[Screenshot_2025-01-21_17-51-43](https://github.com/user-attachments/assets/cfdd5955-51c5-4b60-8c01-b7fcd5def0a2)
 
 
 Made with ❤️ by Okba
